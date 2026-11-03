@@ -2,4 +2,4 @@
 
 **Role:** Data & Reporting Analyst
 
-**Fun Fact:** I have over 120 board games
+**Fun Fact:** I have over 120 board games and no Monopoly!
